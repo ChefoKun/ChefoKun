@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Chefo
+- 👀 I’m interested in League of legends 
+- 🌱 I’m currently learning C#
+- 📫 How to reach me Add me on instagram :ch3f00
+- 😄 Pronouns: azis na heroin 
+- ⚡ Fun fact: hard stuck bronze
